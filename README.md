@@ -1,5 +1,5 @@
 # 💫 About Me:
-Excited t0 learn new things
+Excited to learn new things
 
 
 ## 🌐 Socials:
